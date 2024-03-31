@@ -1,1 +1,0 @@
-# Noto-Cursed-Emojis
